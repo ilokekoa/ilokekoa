@@ -4,7 +4,7 @@
 
 <img width="736" height="552" alt="IMG_9660" src="https://github.com/user-attachments/assets/de8e5049-655c-4ac9-b72d-f61eb38f5891" />
 
-thin ice: roblox fandoms, hetalia, napoleonic war fans, if you make vulgar jokes. hard DNI: israel skins (no matter your stance), amephil shippers, and people who idolize any historical figure
+thin ice: roblox fandoms, hetalia, napoleonic war fans, if you make vulgar jokes. hard DNI: israel skins (no matter your stance), 🇵🇭🇺🇸/🇨🇳🇷🇺/🇨🇳[ussr] shippers, and people who idolize any historical figure
 
 ^ this is mostly a heads up as i don’t expect people in the dni to respect boundaries, just know i wont talk to you. that aside, i’m extremely chill and open so feel free to interact with me
 
