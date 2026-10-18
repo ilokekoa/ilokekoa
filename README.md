@@ -2,5 +2,5 @@
 
 <details>
   <summary>Dni/Thin ice </summary>
-    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, napoleonic wars fans, any roblox fandom, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, european history fans, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.)</p>
+    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, napoleonic wars fans, any roblox fandom, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.)</p>
 </details>
