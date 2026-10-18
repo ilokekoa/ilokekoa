@@ -3,5 +3,5 @@
 <details>
   <summary>Dni/Thin ice </summary>
     <p>napoleon fans, napoleon fandom, napoleonic wars fans, any roblox fandom, european history fans, USA fans, israel skins (no matter your stance.)</p>
-  <p>PS: the list above is just to state what i don’t like, i don’t expect people to respect boundaries and im also just generally not interested in the things listed</p>
+  <p>PS: the list above is just to state what i don’t like</p>
 </details>
