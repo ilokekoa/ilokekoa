@@ -2,6 +2,6 @@
 
 <details>
   <summary>Dni/Thin ice </summary>
-    <p>napoleon fans, napoleon fandom, napoleonic wars fans, any roblox fandom, european history fans, USA fans, israel skins (no matter your stance.)</p>
-  <p>PS: the list above is just to state what i don’t like</p>
+    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, napoleonic wars fans, any roblox fandom, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, european history fans, USA fans, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.)</p>
+  <p>PS: the list above is just to state what i don’t like, things in asterisks are absolutely dni</p>
 </details>
