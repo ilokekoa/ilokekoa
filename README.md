@@ -2,5 +2,5 @@
 
 <details>
   <summary>Would rather not interact with:</summary>
-    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, napoleonic wars fans, any roblox fandom, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.) and 𝗣𝗵𝗶𝗹𝗶𝗽𝗽𝗶𝗻𝗲𝘀 𝘅 𝗔𝗺𝗲𝗿𝗶𝗰𝗮 𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀.</p>
+    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, napoleonic wars fans, any roblox fandom, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.) and 𝗣𝗵𝗶𝗹𝗶𝗽𝗽𝗶𝗻𝗲𝘀 𝘅 𝗔𝗺𝗲𝗿𝗶𝗰𝗮 or China x Russia/Soviet shippers.</p>
 </details>
