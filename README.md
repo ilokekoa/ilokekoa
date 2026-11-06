@@ -2,6 +2,6 @@
 
 <details>
   <summary>Would rather not interact with:</summary>
-    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, chirus/chisov, 𝗣𝗵𝗶𝗹𝗔𝗺𝗲 shippers, close-minded people, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.)</p>
-  <p>id rather people dont vent to me if we’re not friends/close, i’m just here to chill lol</p>
+    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, people who ship ChiRus/ChiSov or 𝗣𝗵𝗶𝗹𝗔𝗺𝗲, close-minded people, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.)</p>
+  <p>if you’re anti-ship in CH fandom maybe don’t talk to me or just don’t bring it up lol i can agree to disagree</p>
 </details>
