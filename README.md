@@ -2,5 +2,6 @@
 
 <details>
   <summary>Would rather not interact with:</summary>
-    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, chirus/chisov, 𝗣𝗵𝗶𝗹𝗔𝗺𝗲 shippers, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.)</p>
+    <p>𝗻𝗮𝗽𝗼𝗹𝗲𝗼𝗻 𝗳𝗮𝗻𝘀, 𝗵𝗲𝘁𝗮𝗹𝗶𝗮, chirus/chisov, 𝗣𝗵𝗶𝗹𝗔𝗺𝗲 shippers, close-minded people, 𝗶𝘀𝗿𝗮𝗲𝗹 𝘀𝗸𝗶𝗻𝘀 (no matter your stance.)</p>
+  <p>id rather people dont vent to me if we’re not friends/close, i’m just here to chill lol</p>
 </details>
